@@ -1,4 +1,4 @@
-# 👾 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Orbitron&size=30&duration=2000&pause=700&color=F70000&width=780&lines=Phantom;PhantomVail)](https://git.io/typing-svg)
+# 👾 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Orbitron&size=30&duration=2000&pause=700&color=F70000&width=435&lines=Phantom;PhantomVail)](https://git.io/typing-svg)
 
 **Welcome to my lair...**
 
