@@ -21,7 +21,7 @@ By day, I craft **Roblox games**, **apps**, and occasionally dabble in the dark 
 ## 🎭 Unveil the Darkness
 - **😄 Pronouns:** [he/him]
 - **⚡ Dark Fact:** My code is my weapon, and the digital realm is my battleground.
-- **🕶️ I Sometimes am EVIL.
+- **🕶️**  I Sometimes am EVIL.
 **Embrace the darkness. Code on.** 
 
 
